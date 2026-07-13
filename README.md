@@ -1,4 +1,4 @@
-### Hi I'm Pretty👋  
+### Hi I'm Truphy👋  
 
 
 
